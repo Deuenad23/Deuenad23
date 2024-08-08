@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my notes in the class
 - 📫 How to reach me, i live in Guaíra Paraná
 - 😄 Pronouns: he/him
-- ⚡ Fun fact:I have ADHD and I play chess
+- ⚡ Fun fact: I have ADHD and play chess, swim and basketball
 
 <!---
 Deuenad23/Deuenad23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
